@@ -19,4 +19,4 @@
 如果你正在寻找日本AV免费资源平台，快来体验我们推荐的站点。这里有最新的番号更新，最受欢迎的女优作品，高清无广告的观看体验，让你轻松畅享高清视频。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vv20250707/vv06 ）</span>
